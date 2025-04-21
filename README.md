@@ -1,2 +1,6 @@
+[![9ae68942cb1665b48359b594ae8f1b0d.jpg](https://i.postimg.cc/L6gFVwKb/9ae68942cb1665b48359b594ae8f1b0d.jpg)](https://postimg.cc/D8hNvCzr)
 
-[![c10e47da3785a735e1fabe7b017ded22.jpg](https://i.postimg.cc/xTt6Nfq1/c10e47da3785a735e1fabe7b017ded22.jpg)](https://postimg.cc/N526Ww13)
+
+
+♡　ᯓ﹒˚　𐙚
+　•　❛❛ 𝐈　　𝐰𝐚𝐧𝐭　𝐲𝐨𝐮　❜❜
